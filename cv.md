@@ -1,4 +1,4 @@
-# CV IVANOVA OLGA #
+# _CV IVANOVA OLGA_ #
 1. **Name:** Ivanova Olga.
 2. **Contacts:**
    * _Telegram:_ Olga_Ivanova1
